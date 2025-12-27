@@ -25,6 +25,8 @@ Frontend & Mobile developer who builds fast, clean, and user-focused interfaces 
 * Animated, polished interfaces that feel great to use
 
 **Email:** [contact@mahdicodes](mailto:jafarimahdi850@gmail.com)
+
 **More about me:** [https://mahdi.codes](https://mahdi.codes)
+
 **LinkedIn:** [https://linkedin.com/in/mahdicodes](https://linkedin.com/in/mahdicodes)
 
